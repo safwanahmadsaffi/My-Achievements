@@ -1,1 +1,1 @@
-I will share international or small achievements as well!
+I'll share international or small achievements as well!
